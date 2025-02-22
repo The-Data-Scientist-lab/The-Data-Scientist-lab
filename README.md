@@ -17,7 +17,7 @@ Building real-world projects and sharing insights daily
 🤖 Interests: Data Science | Artificial Intelligence | Machine Learning
 
 🌍 Where You Can Find Me
-🔹 Instagram: @scientist.py (Daily Learning Notes)
+🔹 Instagram: @https://www.instagram.com/scientist.py/ (Daily Learning Notes)
 🔹 GitHub: You're already here! 😎
 
 💡 Let's connect and build something amazing!
